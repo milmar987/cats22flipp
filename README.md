@@ -16,4 +16,4 @@
 
 []()
 
-[]()
+[thread about restoring factory image](https://xdaforums.com/t/cat-s22-flip-revert-to-stock.4626603/)
