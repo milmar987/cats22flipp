@@ -32,6 +32,10 @@
 
 [keyboard fix](https://xdaforums.com/t/cat-s22-flip-installing-gsi-rom.4660690/post-89722022)
 
-[]()
+[unihertz phone](https://www.unihertz.com/products/jelly-star?variant=43998790484207)
+
+[VoLTE](https://github.com/ponces/treble_build_pe#:~:text=If%20you%20have%20a%20non%2DSamsung%20device%20with%20a%20Qualcomm%20chipset%20and%20VoLTE%20isn%27t%20working%20with%20the%20default%20IMS%20package%20provided%20by%20Treble%20App%2C%20try%20installing%20this%20alternative%20IMS%20package.)
+
+[lineage os alternative](https://github.com/phhusson/treble_experimentations/releases)
 
 [thread about restoring factory image](https://xdaforums.com/t/cat-s22-flip-revert-to-stock.4626603/)
