@@ -43,6 +43,12 @@
 
 ---
 
-https://www.ekwb.com/shop/ek-quantum-velocity2-direct-die-d-rgb-1700-core-edition
+https://www.thermal-grizzly.com/intel-mycro-direct-die-pro/s-tg-my-dd-p-i
 
-https://www.ekwb.com/shop/ek-quantum-velocity2-ihs-removal-tool-1700
+https://www.galaxus.ch/en/s4/product/bernstein-minitorque-screwdriver-14-005-nm-060-nm-torque-wrenches-10280907
+
+https://www.caseking.de/en/ek-water-blocks-ek-quantum-velocity-ihs-removal-tool-lga-1700/WAEK-2629.html
+
+https://www.galaxus.ch/de/s1/product/ekwb-ek-quantum-velocity-ihs-removal-tool-lga-1700-mainboard-zubehoer-25110367?supplier=6764408
+
+https://www.ekwb.com/shop/ek-quantum-velocity2-ihs-removal-tool-1700?srsltid=AfmBOoo_B_mYxCQxj2DbRAbilg6iGbORk7ioDuhkjZp8DxFUMJ08aW1E
