@@ -55,3 +55,47 @@ Alkohol
 Wenger presenter??? Something else???
 Zenlet wallet
 Flipper zero
+
+---
+
+https://www.youtube.com/watch?v=j6QqIbRPQ34&t=311s
+
+https://npm-kiosk.remotion.dev/
+
+https://www.remotion.dev/about
+
+Ultra 7 155H
+
+https://visionapartments.com/en/
+
+https://github.com/ai/size-limit
+
+https://github.com/dominicstop/react-native-ios-context-menu
+
+https://www.foronered.com/
+
+https://github.com/marclou?tab=repositories
+
+https://shipfa.st/
+
+https://marclou.com/?ref=shipfast_faq
+
+https://www.infomaniak.com/en
+
+https://biskoui.ch/
+
+https://www.vshn.ch/en/
+
+https://opsone.ch/de/managed-applications/gitlab
+
+https://support.hostpoint.ch/de/produkte/webshop/haeufig-gestellte-fragen-zum-webshop-now/zahlungsmethoden
+
+https://www.transferly.swiss/en/send/file
+
+https://amnistreasury.com/
+
+https://www.swissmadesoftware.org/news/2024/product-management-festival-2024.html
+
+https://www.chargebee.com/resources/glossaries/what-is-grandfathering/
+
+https://github.com/remotion-dev?q=&type=all&language=&sort=
