@@ -48,3 +48,10 @@ TG16337
 https://www.galaxus.ch/en/s4/product/bernstein-minitorque-screwdriver-14-005-nm-060-nm-torque-wrenches-10280907
 
 CKDEB2C-10051021
+
+---
+
+Alkohol
+Wenger presenter??? Something else???
+Zenlet wallet
+Flipper zero
