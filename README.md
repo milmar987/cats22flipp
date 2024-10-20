@@ -43,7 +43,7 @@
 
 ---
 
-https://www.thermal-grizzly.com/intel-mycro-direct-die-pro/s-tg-my-dd-p-i
+TG16337
 
 https://www.galaxus.ch/en/s4/product/bernstein-minitorque-screwdriver-14-005-nm-060-nm-torque-wrenches-10280907
 
