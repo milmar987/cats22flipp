@@ -51,18 +51,11 @@ CKDEB2C-10051021
 
 ---
 
-Alkohol
-Wenger presenter??? Something else???
-Zenlet wallet
-Flipper zero
-
----
-
 https://www.youtube.com/watch?v=j6QqIbRPQ34&t=311s
 
 https://npm-kiosk.remotion.dev/
 
-https://www.remotion.dev/about
+https://www.remotion.pro/login
 
 Ultra 7 155H
 
