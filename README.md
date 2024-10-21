@@ -85,4 +85,24 @@ https://www.transferly.swiss/en/send/file
 
 https://amnistreasury.com/
 
-https://www.swissmadesoftware.org/news/2024/product-management-festival-2024.html
+---
+
+https://www.youtube.com/watch?v=Dz0DO4qFlMU
+
+https://poopup.co/?ref=indiepage
+
+https://byedispute.com/?ref=indiepage
+
+https://insigh.to/?ref=indiepage
+
+https://theherofit.app/?ref=indiepage
+
+https://habitsgarden.com/?ref=indiepage
+
+https://indiepa.ge/?ref=indiepage
+
+https://fitymi.app/?ref=indiepage
+
+https://buddycrush.co/?ref=indiepage
+
+https://makelanding.ai/?ref=indiepage
