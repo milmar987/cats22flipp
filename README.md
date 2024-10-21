@@ -82,7 +82,7 @@ https://marclou.com/?ref=shipfast_faq
 
 https://www.infomaniak.com/en
 
-https://biskoui.ch/
+[https://biskoui.ch/](https://biskoui.ch/en/)
 
 https://www.vshn.ch/en/
 
