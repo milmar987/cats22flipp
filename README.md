@@ -108,3 +108,19 @@ https://buddycrush.co/?ref=indiepage
 https://makelanding.ai/?ref=indiepage
 
 benjamin code - awwwards
+
+---
+
+https://pafory.com/de/products/male-perfumes
+
+https://www.scentbird.com/perfume/dolcegabbana-light-blue-eau-intense-pour-homme-1600
+
+https://www.scentbird.com/perfume/versace-pour-homme-edt-260
+
+https://www.scentbird.com/perfume/dolcegabbana-k-1444
+
+https://parfums-de-marly.com/products/habdan?_pos=11&_fid=a34feabd7&_ss=c
+
+https://parfums-de-marly.com/products/pegasus-exclusif?_pos=9&_fid=a34feabd7&_ss=c
+
+https://parfums-de-marly.com/products/haltane?variant=42049491501207
